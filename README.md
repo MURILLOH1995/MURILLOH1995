@@ -10,3 +10,4 @@ Você pode clicar no link Visualizar para ver suas alterações.
 --->
 -🥦
 ![](https://s2.glbimg.com/rKq2WZ6FCFPCXmugfhDiFGAHikU=/e.glbimg.com/og/ed/f/original/2021/11/30/giphy_6.gif)
+![](https://d11a6trkgmumsb.cloudfront.net/original/3X/e/1/e13dda99ca718bc17e3d446c67199a3c83615c8f.gif)
